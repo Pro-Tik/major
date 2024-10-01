@@ -1,1 +1,1 @@
-# major
+[Major Telegram](https://t.me/major/start?startapp=6310751267)
